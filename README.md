@@ -1,5 +1,5 @@
-    -yo, I’m @oxcivoul
+    -yo, I’m @xan4xs
     -I’m interested in security and collaborative coding
     -I am currently learning the basics
     -I want to collaborate with small projects to gain experience and meet interesting people
-    -How to reach me: you can contact me on Twitter: https://twitter.com/oxcivouleth and ds oxc1voul.eth#6059
+    -How to reach me: you can contact me on Twitter:(https://twitter.com/xan4xs) and ds xan4xs
